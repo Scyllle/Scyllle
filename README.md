@@ -6,7 +6,9 @@ About Scylle,
 
 My social medias,
 
-<img align="right" width="200" src="https://raw.githubusercontent.com/jpalvesl/kurisu-site/master/assets/kurisu.gif"/>
+<img align="right" width="200" src="https://user-images.githubusercontent.com/86060567/136994526-2872d34b-95d2-48de-a45e-3fd702d021eb.gif"/>
+
+
 
 
 <br/>
