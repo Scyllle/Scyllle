@@ -1,7 +1,7 @@
 About Scylle, 
 
 * 🤔 Learning about Game Designe, Coding and about the life itself. 
-* :sauropod: In a relationship with Final fantasy VII and Game OriginalSoundtracks
+* :sauropod: In a relationship with Final fantasy VII, Game Art(Pixel and normal) and Game OriginalSoundtracks
 * :cat: Studying Digital Games in Estácio                                                                                                                
 
 My social medias,
