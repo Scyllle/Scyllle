@@ -5,7 +5,7 @@ About Scylle,
 * :cat: Studying Digital Games in Estácio                                                                                                                
 
 
-<img align="right" width="200" src="https://media.discordapp.net/attachments/774812202015129601/947247188096991262/tumblr_inline_pli7cltEp11rpny1p_1280.gif?width=588&height=473"/>
+<img align="right" width="200" src="https://c.tenor.com/H6tUS5iYSKAAAAAd/artoria-pendragon-saber.gif"/>
 
 
 
