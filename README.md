@@ -1,10 +1,9 @@
 About Scylle, 
 
-* 🤔 Learning about Game Designe, Coding and about the life itself. 
-* :sauropod: In a relationship with Final fantasy VII, Game Art(Pixel and normal) and Game OriginalSoundtracks
+* :sauropod: Learning about Game Designe, Coding and about the life itself. 
+* :space_invader: In a relationship with Final fantasy VII, Game Art(Pixel and normal) and Game OriginalSoundtracks of games
 * :cat: Studying Digital Games in Estácio                                                                                                                
 
-My social medias,
 
 <img align="right" width="200" src="https://media.discordapp.net/attachments/774812202015129601/947247188096991262/tumblr_inline_pli7cltEp11rpny1p_1280.gif?width=588&height=473"/>
 
