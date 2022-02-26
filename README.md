@@ -6,7 +6,7 @@ About Scylle,
 
 My social medias,
 
-<img align="right" width="200" src="https://user-images.githubusercontent.com/86060567/136994526-2872d34b-95d2-48de-a45e-3fd702d021eb.gif"/>
+<img align="right" width="200" src="https://media.discordapp.net/attachments/774812202015129601/947247188096991262/tumblr_inline_pli7cltEp11rpny1p_1280.gif?width=588&height=473"/>
 
 
 
