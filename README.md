@@ -5,7 +5,6 @@ About Scylle,
 * :cat: Studying Digital Games in Estácio                                                                                                                
 
 
-<img align="right" width="200" src="https://c.tenor.com/H6tUS5iYSKAAAAAd/artoria-pendragon-saber.gif"/>
 
 
 
